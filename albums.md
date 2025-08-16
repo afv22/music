@@ -10,13 +10,13 @@
 
 [To Let A Good Thing Die](https://open.spotify.com/album/5ON0EY1YuVEJPwj17yYtwO?si=wBYnpMmcTZyhe5GKFRTcGQ)
 
-[Freudian](https://open.spotify.com/album/3xybjP7r2VsWzwvDQipdM0?si=hzYYMIivRLeaHCkkdRZJsg)
-
 ## Must Listens
 
 [The Life of Pablo](https://open.spotify.com/album/2f4cvZmkZqlzjNf7bcmeCb?si=E5bYGFSIQgqQxQ8dTdUbng)
 
 [Fred Again Boiler Room](https://www.youtube.com/watch?v=c0-hvjV2A5YÏ)
+
+[Freudian](https://open.spotify.com/album/3xybjP7r2VsWzwvDQipdM0?si=hzYYMIivRLeaHCkkdRZJsg)
 
 [Urban Flora](https://open.spotify.com/album/1MDXXd7ea47KCYOfHww6En?si=IYuFNWfVQTG_LMIDAiarvw)
 
@@ -28,8 +28,6 @@
 
 [Reckless](https://open.spotify.com/album/1PuZ5juin9Mpt3Tyiygzio?si=mY2GgmZKR12VGHxwpJLtMw)
 
-[How To Save a Life](https://open.spotify.com/album/1IM3GwptCGYjRkzCBolyFK?si=Cuqy5AZkTLG3BmTROjrNkQ)
-
 ## Great Albums
 
 [The Great American Bar Scene](https://open.spotify.com/album/3w7pEn5Ai1DCRG2FqFNIbB?si=O3HdT0a6TYK9AZnTqsUntQ)
@@ -37,5 +35,7 @@
 [Songs About Jane](https://open.spotify.com/album/1Rv9WRKyYhFaGbuYDaQunN?si=yBvfasZcTNq_tWTUB_ffyg)
 
 [Blonde](https://open.spotify.com/album/3mH6qwIy9crq0I9YQbOuDf?si=oKEjaBXNTA2mKmcKMhzAtA)
+
+[How To Save a Life](https://open.spotify.com/album/1IM3GwptCGYjRkzCBolyFK?si=Cuqy5AZkTLG3BmTROjrNkQ)
 
 [Loveseat](https://open.spotify.com/album/7oP7ABjXuVjSCiDexJ2bza?si=fUPQg2DfQxuVyxG15VViWg)

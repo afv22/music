@@ -14,7 +14,7 @@
 
 [The Life of Pablo](https://open.spotify.com/album/2f4cvZmkZqlzjNf7bcmeCb?si=E5bYGFSIQgqQxQ8dTdUbng)
 
-[Fred Again Boiler Room](https://www.youtube.com/watch?v=c0-hvjV2A5YÏ)
+[Fred again.. (Boiler Room)](https://www.youtube.com/watch?v=c0-hvjV2A5YÏ)
 
 [Freudian](https://open.spotify.com/album/3xybjP7r2VsWzwvDQipdM0?si=hzYYMIivRLeaHCkkdRZJsg)
 

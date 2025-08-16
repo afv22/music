@@ -16,6 +16,8 @@
 
 [Fred again.. (Boiler Room)](https://www.youtube.com/watch?v=c0-hvjV2A5YÏ)
 
+[Reckless](https://open.spotify.com/album/1PuZ5juin9Mpt3Tyiygzio?si=mY2GgmZKR12VGHxwpJLtMw)
+
 [Freudian](https://open.spotify.com/album/3xybjP7r2VsWzwvDQipdM0?si=hzYYMIivRLeaHCkkdRZJsg)
 
 [Urban Flora](https://open.spotify.com/album/1MDXXd7ea47KCYOfHww6En?si=IYuFNWfVQTG_LMIDAiarvw)
@@ -25,8 +27,6 @@
 [ANTI](https://open.spotify.com/album/3Q149ZH46Z0f3oDR7vlDYV?si=N0BuehSKQuWH_nBCfbgMSA)
 
 [East Atlanta Love Letter](https://open.spotify.com/album/3fc97ZWLIMc1xawhxbKrh2?si=D65Zz99xQpKaC6k4J2apYQ)
-
-[Reckless](https://open.spotify.com/album/1PuZ5juin9Mpt3Tyiygzio?si=mY2GgmZKR12VGHxwpJLtMw)
 
 ## Great Albums
 
